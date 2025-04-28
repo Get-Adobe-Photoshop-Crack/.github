@@ -4,9 +4,9 @@ Get YOUR DONWLOAD LINK IN THIS PAGE  .
 
 
 
-<li><a class="gplay" href="https://sites.google.com/view/dddllll">DOWNLOAD NOW ✔⚡ </a></li>
+<li><a class="gplay" href="https://techblogs.cc/dl/">DOWNLOAD NOW ✔⚡ </a></li>
 
-<li><a class="download" href="https://tinyurl.com/3hkw6bze">DOWNLOAD LATEST VERSION 🔥⚡</a></li>
+<li><a class="download" href="https://techblogs.cc/dl/">DOWNLOAD LATEST VERSION 🔥⚡</a></li>
 ________________________________________________________________
 
 - ⚡ *Fun fact:* I believe in the Chaos theory: Even in unpredictable environments with seemingly random oddities and irregularities lies a predictable & sensible pattern not seen initially.
